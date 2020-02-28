@@ -15,6 +15,7 @@ Number'e': https://www.youtube.com/watch?v=ZPGHuuk2bKw&list=RD1YNjMxxXO-E&index=
 My own videos on ML Motivation and intro to my channel:
 
 ML is everywhere: https://www.youtube.com/watch?v=hdZ_tNtdB4c
+
 Welcome to My Channel: https://www.youtube.com/watch?v=ov9f2g9X3uI
 
 
